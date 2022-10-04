@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Hardream-cmd
+- 👋 Hi, I’m @Hardream-cmd, actually studying
 - 👀 I’m interested in music (piano), sports (cycling, surfing) and probably coding ! 
 - 🌱 I’m currently learning everything I can, but mostly Web Developement right now !
 - 💞️ I’m looking to collaborate on any challenges, but if it's about ESG it's a big plus!
